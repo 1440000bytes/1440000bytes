@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @1440000bytes
 - 👀 I’m interested in bitcoin and privacy
-- 📫 How to reach me alicexbt[at]protonmail[dot]com
+- 📫 Reach me at alicexbt[at]protonmail[dot]com
